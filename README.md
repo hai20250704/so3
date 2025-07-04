@@ -16,4 +16,4 @@
 
 最终，选择合适的日本AV免费平台，不仅能享受高清视频、及时更新的资源，还能在安全的环境中畅快观看。平台A、B和C各自有着不同的优势，依你的需求选择最合适的，便能轻松享受顶级的观影体验。
 
-<span style="display:none;">[Canonical link](https://github.com/hai20250704/so3）</span>
+<span style="display:none;">[Canonical link](https://github.com/hai20250704/so3 ）</span>
